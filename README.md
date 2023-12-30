@@ -1,4 +1,4 @@
-# Hi there, my name is Sunday Samuel 👋
+## Hi there, my name is Sunday Samuel 👋
 
  🔭 I'm a Data Analyst, Market Analyst and Business Requirements Analyst!
  
