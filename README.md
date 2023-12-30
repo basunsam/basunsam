@@ -2,7 +2,7 @@
 
  🔭 I'm a Data Analyst, Market Analyst and Business Requirements Analyst!
  
-🌱 I am a motivated and versatile CAPM- trained with in-depth knowledge in the analysis 
+🌱 I'm a motivated and versatile CAPM- trained with in-depth knowledge in the analysis 
    and development of efficient operations, standardized sales as well as IT strategies
    to build and execute digital transformation.
    
