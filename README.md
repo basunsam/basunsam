@@ -9,6 +9,6 @@
 🔭 I have gained practical experience in Online and Digital marketing 
    and also as a Payment Analyst!
    
- 🌱 I’m currently learning Embedded Analytics 🤣
+ 🌱 I’m currently learning Embedded Analytics.🥇
  
-⚡ Fun fact: I love watching football and reading self development books.
+⚡ Fun fact: I love watching football and reading self development books.📚
